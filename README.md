@@ -1,1 +1,1 @@
-# qingquan.github.io
+# Good Notes!
